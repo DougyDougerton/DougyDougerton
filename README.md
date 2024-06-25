@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @DougyDougerton
+- 👀 I’m interested in not a whole lot.
+- 🌱 I’m currently learning Java and SQL
+- 💞️ I’m looking for build and expand my knowledge
+- 📫 How to reach me? You can always reach me via email douglas.spicer97@hotmail.com
+- 😄 Pronouns: aboot/eh
+- ⚡ Fun fact: Speeding is only illegal if you get caught!
